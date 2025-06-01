@@ -55,6 +55,6 @@ I thrive in **Agile** environments, bridge business needs with technical executi
 ## 📫 Let's Connect
 
 - 📧 Email: [alfazadani@gmail.com]
-- 💼 LinkedIn: [linkedin.com/in/ahmad-dani-alfaza-173a321b1/] 
+- 💼 LinkedIn: [http://www.linkedin.com/in/ahmad-dani-alfaza-173a321b1/] 
 
 ---
